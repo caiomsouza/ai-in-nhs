@@ -26,7 +26,7 @@ https://www.youtube.com/watch?v=gXYhTa6JAXM<BR>
 Artificial intelligence in healthcare: opportunities and challenges | Navid Toosi Saidy | TEDxQUT<BR>  
 https://www.youtube.com/watch?v=uvqDTbusdUU<BR>  
   
-Machines in Medicine - AI in the NHS<BR>  
+Machines in Medicine - AI in the NHS
 https://www.youtube.com/watch?v=dglk-NIoKNY<BR>  
   
 
