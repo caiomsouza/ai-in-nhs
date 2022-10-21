@@ -29,6 +29,5 @@ https://www.youtube.com/watch?v=uvqDTbusdUU<BR>
 Machines in Medicine - AI in the NHS<BR>
 https://www.youtube.com/watch?v=dglk-NIoKNY<BR>  
   
-
-Exploring the use of AI in healthcare and the NHS | UCL School of Management Executive Education<BR>  
+Exploring the use of AI in healthcare and the NHS | UCL School of Management Executive Education<BR>
 https://www.youtube.com/watch?v=H4OBs3cwfAc<BR>  
