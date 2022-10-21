@@ -18,16 +18,16 @@ Can AI Save the NHS?<BR>
 https://www.youtube.com/watch?v=S1mwish7pDo <BR>
   
 Can artificial intelligence 'save' the NHS? - BBC Click<BR>
-https://www.youtube.com/watch?v=vh9YFOV70zw <BR>  
+https://www.youtube.com/watch?v=vh9YFOV70zw <BR>
 
 How can AI help our NHS and should we be concerned? | Rebecca Pope | TEDxFolkestone<BR>
 https://www.youtube.com/watch?v=gXYhTa6JAXM<BR>
   
-Artificial intelligence in healthcare: opportunities and challenges | Navid Toosi Saidy | TEDxQUT<BR>  
-https://www.youtube.com/watch?v=uvqDTbusdUU<BR>  
+Artificial intelligence in healthcare: opportunities and challenges | Navid Toosi Saidy | TEDxQUT<BR>
+https://www.youtube.com/watch?v=uvqDTbusdUU<BR>
   
 Machines in Medicine - AI in the NHS<BR>
-https://www.youtube.com/watch?v=dglk-NIoKNY<BR>  
+https://www.youtube.com/watch?v=dglk-NIoKNY<BR>
   
 Exploring the use of AI in healthcare and the NHS | UCL School of Management Executive Education<BR>
-https://www.youtube.com/watch?v=H4OBs3cwfAc<BR>  
+https://www.youtube.com/watch?v=H4OBs3cwfAc<BR>
