@@ -14,5 +14,5 @@ DEVELOPING INNOVATIVE SYSTEMS THROUGH RESPONSIBLE AI IN HEALTHCARE<BR>
 https://bigdataldn.com/seminar-schedule/enable-accelerated-business-decision-making-in-your-organisation-through-responsible-ai-ml-practices/  
   
   
-Can AI Save the NHS?
+Can AI Save the NHS?<BR>
 https://www.youtube.com/watch?v=S1mwish7pDo <BR>
